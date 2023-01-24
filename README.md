@@ -50,4 +50,4 @@ Basic DNI criteria https://basic-dfi-criteria.carrd.co/·
 
 Negative reality checkers · Over 20 under 15 (unless friend already )· You support MIK/Minors in k!nk· If you think agere or petre is k!nk· You purposefully trigger people · Problematic content creator supporters· Encourages in cringe culture· DSMP Stans / Fans (This excludes IRLS / INTJS / FKS )· Genshin Stans / Fans ( This excludes IRLS / INTRJS / FKS )·
 
-https://tiptopcaspr.co
+https://tiptopcaspr.carrd.co
