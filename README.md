@@ -1,4 +1,4 @@
-★ Casper / Fell ★
+***★ Casper / Fell ★***
 
 ★ 17 · He / It · ND · Black / Mexican ★
 
@@ -20,6 +20,7 @@ Doverity SYS !!!
 Camilo!!!!
 
 🎭 ★ INT / DNI / BYI ★ 🎭
+
 BYI
 
 I stim and tic
@@ -38,7 +39,9 @@ I'm therian
 
 I'm also questioning being apart of a system !!!
 
-★ I am UF! Sans, Hunter Wittebane, Crispin Wizard, Doppio Vinegar + more ★ Please for the love of asgore, do NOT try to tell me otherwise. I literally do not care. I am those people. /srs
+
+***★ I am UF! Sans, Hunter Wittebane, Crispin Wizard, Doppio Vinegar + more ★ Please for the love of asgore, do NOT try to tell me otherwise. I literally do not care. I am those people. /srs ★***
+
 
 🃏pos / INT🃏
 
@@ -46,7 +49,7 @@ I'm also questioning being apart of a system !!!
 
 🎀neg / DNI🎀· \
 
-Basic DNI criteria https://basic-dfi-criteria.carrd.co/·
+***Basic DNI criteria https://basic-dfi-criteria.carrd.co/·***
 
 Negative reality checkers · Over 20 under 15 (unless friend already )· You support MIK/Minors in k!nk· If you think agere or petre is k!nk· You purposefully trigger people · Problematic content creator supporters· Encourages in cringe culture· DSMP Stans / Fans (This excludes IRLS / INTJS / FKS )· Genshin Stans / Fans ( This excludes IRLS / INTRJS / FKS )·
 
